@@ -17,7 +17,7 @@
 - Creative ideas in tech education and gamification  
 
 📫 **How to reach me:**  
-- Email: [saishpatil@example.com](mailto:saishpatil9322@gmail.com)
+- Email: [saishpatil9322@gmail.com](mailto:saishpatil9322@gmail.com)
 - LinkedIn: [linkedin.com/in/saishpatil](https://linkedin.com/in/saishpatil)  
 
 😄 **Pronouns:** He/Him  
